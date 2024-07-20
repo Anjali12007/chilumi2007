@@ -48,8 +48,11 @@ Improving GitHub profile and project portfolios.
 
 
 Contact
+
 Email: [anjali051118@gmail.com]
+
 LinkedIn: www.linkedin.com/in/anjali-singh-799798227
+
 YouTube: https://youtube.com/@hoyoverses_child?si=fW-mBEuVl7GSeXL8
 
 
